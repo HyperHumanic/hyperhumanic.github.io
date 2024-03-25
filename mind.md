@@ -4,5 +4,20 @@
 
 HyperHumanic Program for the mind.
 
-### Microdosing / Stacking psichedelics
+### Mindfulness
 
+#### Yoga
+
+Yoga
+Yoga Nidra
+Tantra
+
+#### Cerimonies
+
+Coffee
+Tobacco
+
+#### Microdosing / Stacking psichedelics
+
+Mushrooms
+LSD
