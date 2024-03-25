@@ -8,16 +8,16 @@ HyperHumanic Program for the mind.
 
 #### Yoga
 
-Yoga
-Yoga Nidra
-Tantra
+- Yoga
+- Yoga Nidra
+- Tantra
 
 #### Cerimonies
 
-Coffee
-Tobacco
+- Coffee
+- Tobacco
 
 #### Microdosing / Stacking psichedelics
 
-Mushrooms
-LSD
+- Mushrooms
+- LSD
