@@ -33,7 +33,15 @@ Uno studio effettuato dal Dipartimento di Farmacia dell’Università di Napoli 
 
 #### Anti-aging/reverse-aging
 
-XXXX
+##### Lion'S Mane Mushroom
+
+https://en.wikipedia.org/wiki/Hericium_erinaceus
+
+https://www.healthline.com/nutrition/lions-mane-mushroom
+
+https://pubmed.ncbi.nlm.nih.gov/38004235/
+
+https://www.webmd.com/vitamins/ai/ingredientmono-1536/lions-mane-mushroom
 
 ## Monitoring of indicators
 
