@@ -23,6 +23,14 @@ Kegels (pelvic floor exercises)
 
 ### Diet
 
+## L-Glutamine
+
+https://m.my-personaltrainer.it/GLUTAMMINA.htm
+
+## L-Theanine
+
+https://health.clevelandclinic.org/l-theanine
+
 #### Hairs
 
 ##### Mela Annurca
