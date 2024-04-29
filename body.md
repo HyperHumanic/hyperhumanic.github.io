@@ -31,6 +31,31 @@ https://m.my-personaltrainer.it/GLUTAMMINA.htm
 
 https://health.clevelandclinic.org/l-theanine
 
+## Magnesium
+
+Magnesium Glycinate: Known for its calming magic, recommended at 200-400 mg/day for anxiety, sleep issues, and muscle tension.
+
+Magnesium Citrate: Your go-to for constipation relief and digestive wellness, often prescribed at 150-300 mg/day.
+
+Magnesium Threonate: Boost your brainpower with 1,000-2,000 mg/day, promising better memory and cognitive function.
+
+Magnesium Malate: A lifeline for those with chronic fatigue and fibromyalgia, typically taken at 300-600 mg/day.
+
+Magnesium L-threonate: A brain’s best friend, supporting cognitive function at 1,000-2,000 mg/day.
+Now, let’s explore more magnesium wonders:
+
+Magnesium Taurate: The heart’s ally, dosed at 125-500 mg/day for cardiovascular support.
+
+Magnesium Oxide: High magnesium content but less bioavailability, with dosages ranging from 250-400 mg/day.
+
+Magnesium Chloride: Perfect for topical use or oral intake at 200-400 mg/day.
+
+Magnesium Orotate: A heart-healthy choice, typically at 500-1,000 mg/day.
+
+Magnesium Aspartate: Elevate your workout with personalized dosages.
+
+Magnesium Chelate: High bioavailability champs, like magnesium bisglycinate or magnesium malate, often recommended at 200-400 mg/day.
+
 #### Hairs
 
 ##### Mela Annurca
