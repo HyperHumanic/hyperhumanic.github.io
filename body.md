@@ -76,6 +76,31 @@ https://pubmed.ncbi.nlm.nih.gov/38004235/
 
 https://www.webmd.com/vitamins/ai/ingredientmono-1536/lions-mane-mushroom
 
+##### Dr Frank Suárez
+
+Before passing away, Dr Frank Suárez left a legacy of healthy foods to keep people out of the hospital forever and save their money
+
+Soursop
+Its anti-c@ncer properties are 10,000 time powerful than any mordern chemotherapy
+
+Chia Seeds
+Rich in healthy fat. They will greatly improve your brain function and heart health
+
+Ginger
+Natural enemy of flu and colds. Greatly improves the immune system, warms up the body to attack bacteria
+
+Curcumin
+It will clear your brain fogs and improve a better brain function.
+Reduce inflammation and acne, diseases, stress & anxiety
+
+Castor Oil
+Reverse baldness. Significantly
+increase hair growth by 5 times by applying once a month
+
+Colostrum powder
+Natural remedies for healing wounds and injuries.
+Also strengthens the immune system and gut health
+
 ## Monitoring of indicators
 
 Importance of data driven monitoring.
