@@ -101,6 +101,29 @@ Colostrum powder
 Natural remedies for healing wounds and injuries.
 Also strengthens the immune system and gut health
 
+##### Skin anti aging
+
+Papaya
+Papaya contains an enzyme called papain, which has anti-aging benefits
+
+Pumpkin seeds
+Protect from free radical damage & boosts collagen production
+
+Vegetable Juices
+Contains antioxidants, which help protect our skin from the effect of free radicals.
+
+Coconut water
+It is composed of a phytohormone called kinetin, which helps to provide anti-aging and antioxidant effects.
+
+Flax seeds
+The omega-3 in flaxseeds helps your body to produce collagen, prevent wrinkles and other forms of premature aging.
+
+Ginger and turmeric
+Contains Anti-aging properties. Also, helps to prevent DNA damage and help DNA repair.
+
+JONIZED WATER alkalized, activated, living water Anti oxidant equivalent to 30 glass of green tea
+It contain many antioxidants which help to neutralize free radicals & reduce their damaging effects on skin
+
 ## Monitoring of indicators
 
 Importance of data driven monitoring.
